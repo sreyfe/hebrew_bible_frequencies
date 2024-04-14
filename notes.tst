@@ -1,0 +1,7 @@
+ties
+
+vav
+yud
+resh
+
+
